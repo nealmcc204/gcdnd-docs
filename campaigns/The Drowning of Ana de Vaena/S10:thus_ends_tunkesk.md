@@ -33,6 +33,7 @@ The dazed commoners regained consciousness, the party helped the children out of
 ## Kills
 
 * A ballista and it's crew, by Xan and Jared's lightning. 
+* Most of the mutinous crew of the Bloodless, by the Bloodless (after being shrunk by Dunbar)
 * Neothelid by Clonkers
 * Captain of the Guard Rodrio Albergo by Captain Dunbar
 * Tunkesk, a Ulitharid, by Meabh
